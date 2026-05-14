@@ -1,4 +1,4 @@
-#  
+#  Experience hooked like never before with premium hooked Scripts, the #1 Script. Includes anti-ban and fly for unbeatable performance.
 
 
 
